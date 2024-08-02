@@ -1,4 +1,8 @@
-## Hi there 👋
+## ⚙️⛓️Sol Badguy🔥☀️
+VOLCANIC VIPER!!!!
+GUNFLAME!!1!!!!
+BANDIT REVOLVER!!!!!
+![https://tenor.com/pt-BR/view/guilty-gear-guilty-gear-strive-sol-badguy-wild-throw-gif-22854148](link)
 
 <!--
 **SoleBadguy/SoleBadguy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
