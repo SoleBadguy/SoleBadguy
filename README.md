@@ -2,7 +2,13 @@
 VOLCANIC VIPER!!!!
 GUNFLAME!!1!!!!
 BANDIT REVOLVER!!!!!
+
+
+![image](https://github.com/user-attachments/assets/697940fa-a7c9-4148-ad89-5857899cb968)
+
+
 ![https://tenor.com/bH3zs.gif](link)
+
 
 <!--
 **SoleBadguy/SoleBadguy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
