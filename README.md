@@ -7,7 +7,7 @@ BANDIT REVOLVER!!!!!
 ![image](https://github.com/user-attachments/assets/697940fa-a7c9-4148-ad89-5857899cb968)
 
 
-![](https://tenor.com/bH3zs.gif)
+![link](https://tenor.com/bH3zs.gif)
 
 
 <!--
